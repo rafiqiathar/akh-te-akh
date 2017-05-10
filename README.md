@@ -3,7 +3,7 @@ Name: Athar.Rafiqi
 City: Srinagar.
 State:J&K
 Country:India
-Phone:9796926868
+Phone:+91 8197403390
 Email:athar.rafiqi@gmail.com
 
 Strengths:
