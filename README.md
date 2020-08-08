@@ -5,6 +5,7 @@ State:J&K
 Country:India
 Phone:+91 8197403390
 Email:athar.rafiqi@gmail.com
+Edit Brache Now in AUg
 
 Strengths:
 Hard working, initiative at work, quick and passionate learner, detail oriented, optimistic, good team player, take challenges to face, self depended, can easily adopt to any type of environment, frank, dedication sincerity and honesty, my friends, self motivation, helping for others, trustworthy, patience, adaptable to different situations, confidence, punctuality, positive thinking and attitude, Co-operative, perfection, good listener, "Can Do" attitude, competitive, commited, willing to learn new things, trustworthy, analytical skills, problem solving skills, down to earth, strong desire to serve, competitive, punctual, smarking and adaptive.
